@@ -17,3 +17,5 @@ Cela implique plusieurs choses :
 
     Que le sage va bientôt mourrir
     Qu'il va bientôt payer pour son pacte conclu avec le diable
+
+Alors blablabla...
