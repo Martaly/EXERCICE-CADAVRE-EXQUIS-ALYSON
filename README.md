@@ -3,7 +3,7 @@
 ## Le Cadavre-Exquis de BeCode
 
 Tout commenca le jour où j'ai passé cette **porte**.
-Cette **porte** se referma _brusquement_, je dirait même _intenionnelement_ de la part du mécanisme de fermture.
+Cette **porte** se referma _brusquement_, je dirait même _intenionnellement_ de la part du mécanisme de fermeture.
 **Et là, c'est la catastrophe !**
 **BOUM** mon doigt est coupé en deux ! Ca pisse le **sang** ! Go au urgences.
 
